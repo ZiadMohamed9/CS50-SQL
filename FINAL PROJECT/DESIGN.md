@@ -2,7 +2,7 @@
 
 By ***Ziad Mohammad***
 
-Video overview: [<URL HERE>](https://youtu.be/aJkwzxHqD1g)
+Video overview: [HERE](https://youtu.be/aJkwzxHqD1g)
 
 ## Scope
 
